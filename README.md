@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pran-it
+- 👋 Hi, I’m @pranit dighe
 - 👀 I’m interested in ...               DIY Products, 3D Printing & 3D Modeling
 - 🌱 I’m currently learning ...          bachelors in management studies [MARKETING]
 - 💞️ I’m looking to collaborate on ...   Product management/ quality test/ Marketing/ [in short making quality product out of diy product]
